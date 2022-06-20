@@ -1,1 +1,1 @@
-# FirstRemoveRepo
+# Paragon z warzywniaka
